@@ -1,5 +1,5 @@
 # Primary ERP Apps
-![image](https://github.com/user-attachments/assets/cd1255a9-2291-4a78-95a2-474b075f27f0)
+![416164281-cd1255a9-2291-4a78-95a2-474b075f27f0](https://github.com/user-attachments/assets/d2275a03-cfd6-49cc-8620-10b1fe6efffd)
 
 --------------------------------
 # Secondary ERPs
