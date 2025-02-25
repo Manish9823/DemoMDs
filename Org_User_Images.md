@@ -40,4 +40,8 @@
 ![image](https://github.com/user-attachments/assets/360266c2-def0-4d7f-85ad-563757b722cd)
 
 
+## Process
+![image](https://github.com/user-attachments/assets/49078c2a-4707-4245-be09-235b4c32b970)
+![image](https://github.com/user-attachments/assets/ea96d299-2139-49b5-9000-5460dcae8ea1)
+
 
