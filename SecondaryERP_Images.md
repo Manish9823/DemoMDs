@@ -23,4 +23,4 @@
 
 
 # Organization Chart
-![image](https://github.com/user-attachments/assets/43e6ff81-02df-4162-a9f2-1b8fa2d2339c)
+![image](https://github.com/user-attachments/assets/ccc50ea4-d816-4970-b710-7e52ef937920)
