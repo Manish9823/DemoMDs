@@ -13,6 +13,7 @@
 ## Bot
 ![image](https://github.com/user-attachments/assets/cc2260aa-5794-450c-a12b-ff9ed19ac4c5)
 ![image](https://github.com/user-attachments/assets/33c726f2-1d8d-4e3a-8035-5f97443efb67)
+![image](https://github.com/user-attachments/assets/84379748-708b-4b21-a2f5-72d3c1f8d375)
 
 
 ## WhatsApp
